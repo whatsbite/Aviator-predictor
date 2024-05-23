@@ -6,7 +6,7 @@ Using Predictor Aviator is very simple. All you need to do is accept the terms o
 
 **Choose a site**
 
-During the registration process, you need to select one of the suggested [**DOWNLOAD NOW**](https://chaunsoops.net/4/7443612) casino sites, register, and get a unique ID number for your account.
+During the registration process, you need to select one of the suggested [**DOWNLOAD NOW**](https://publicearn.com/Aviator) casino sites, register, and get a unique ID number for your account.
 
 **Limitations**
 
@@ -24,6 +24,6 @@ The app works with casinos such as 1WIN, PIN-UP, 1XBET, Mostbet. We constantly c
 
 
 **OFFICIAL WEBSITE**
-[**DOWNLOAD NOW**](https://chaunsoops.net/4/7443612)
+[**DOWNLOAD NOW**](https://publicearn.com/Aviator)
 
 

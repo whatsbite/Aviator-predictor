@@ -6,7 +6,7 @@ Using Predictor Aviator is very simple. All you need to do is accept the terms o
 
 **Choose a site**
 
-During the registration process, you need to select one of the suggested [**DOWNLOAD NOW**](https://aviator-predictor.website) casino sites, register, and get a unique ID number for your account.
+During the registration process, you need to select one of the suggested [**DOWNLOAD NOW**](https://t.me/aviator_signals_app) casino sites, register, and get a unique ID number for your account.
 
 **Limitations**
 
@@ -24,6 +24,6 @@ The app works with casinos such as 1WIN, PIN-UP, 1XBET, Mostbet. We constantly c
 
 
 **OFFICIAL WEBSITE**
-[**DOWNLOAD NOW**](https://aviator-predictor.website)
+[**DOWNLOAD NOW**](https://t.me/aviator_signals_app)
 
 

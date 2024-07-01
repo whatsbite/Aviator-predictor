@@ -1,4 +1,4 @@
-Aviator Predictor simplifies and streamlines casino gaming. It provides you with complete authority over the movement of the airplane through our app. To gain access, sign up and download our Predictor Aviator Bot application designed for Android devices.
+Aviator Predictor simplifies and streamlines ok casino gaming. It provides you with complete authority over the movement of the airplane through our app. To gain access, sign up and download our Predictor Aviator Bot application designed for Android devices.
 
 **Sign Up - Registration**
 
